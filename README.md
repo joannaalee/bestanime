@@ -8,7 +8,6 @@ No spoilers are included.
 **Attack on Titan**
 
 Attack on Titan would have to be my top pick for the best action anime out of the millions of action animes out there. Let's talk from the very beginning. Knowing my short attention span, the first eposide is crucial as it must enagage and and convince the audience to continue watching the show. Attack on Titan jumps right into the action scene and automatically captures the reader's attention. The anime is about humanity living inside these massive walls in order to protect them from the titans of the outside world. The main character Eren Yeager, along with his friends Mikasa Ackerman and Armin Alert, try to take revenege on the Titans after their homes are destroyed by these monsters The  concept is new, fresh, and different from your typical action anime, which also makes it more interesting.
-<body>
 
 ![Titan](https://media.giphy.com/media/xUA7b9BGCRbVlYnnLq/giphy.gif)
          
